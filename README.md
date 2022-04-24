@@ -1,3 +1,3 @@
-- 👋 Hi Ich bin der Vipax und verkaufe gerne V-Bucks
-- 🔧 Ich bin ein Developer im Bereich FiveM nur ESX
+- 👋 Hi, I´m Vipax
+- 🔧 I´m Developer only ESX FiveM
 - 📫 Discord Tag : Vipax ツ#5555
